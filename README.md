@@ -1,3 +1,10 @@
+# CAPTURA TEST
+![Captura](https://github.com/lijose59/test_python_hack_1/assets/38841407/272d7619-9d56-4020-9df8-6532da4ff031)
+
+
+
+
+
 # SOCIAL OPLESK
 ### 🏴‍☠️ HACKS 
 
